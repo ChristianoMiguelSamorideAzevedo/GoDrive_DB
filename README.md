@@ -1,4 +1,3 @@
-Sobre
 
 ![image](https://github.com/user-attachments/assets/0dc00ea9-8a07-4f18-a0bb-175dd8079ecd)
 
